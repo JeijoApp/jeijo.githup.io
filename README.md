@@ -1,2 +1,1 @@
-Jeijo
-Términos y Condiciones
+Jeijo, Términos y Condiciones
